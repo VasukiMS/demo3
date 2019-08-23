@@ -1,1 +1,1 @@
-This is Candy's Lair, come in with caution!!
+This is Candy's Lair, enter with caution!!
